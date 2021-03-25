@@ -41,6 +41,7 @@ Dentro de la gran clasificación que hasta el día de hoy conocemos, existen fam
 - Lycaenidae. Cuando llegan a su madurez suelen ser pequeñas y de colores brillantes.
  - Theclinae – Hairstreaks, Sunstreaks, Oakblues, etc.
  - Polyommatinae – Azules, Arguses, Caeruleans.
+
 Finalmente, sabemos en existen muchas familias y subfamilias de mariposas, mas allá de las que estamos acostumbrados a ver, además de que poseen una manera de desarrollo y crecimiiento muy interesante ya que este proceso lleva tiempo, más sin embargo, vale la pena una vez que se hace adulta. 
 ___
 ### Bibliografia
